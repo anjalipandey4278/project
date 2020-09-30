@@ -7,7 +7,3 @@ explore knowledge and get the desire book that fulfill your needs and Donating
 books means giving life to someone and help some one to catch their dreams.
 and the motive of this website is to help you and give wings to your dreams
 get the book from here and don't stop reading.
-
-
-
-the leader is anjali pandey 
